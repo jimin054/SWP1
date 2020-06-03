@@ -1,3 +1,2 @@
-20192763
-Jimin Kim
-
+20192763 Jimin Kim
+Kookmin Univ. BAS
